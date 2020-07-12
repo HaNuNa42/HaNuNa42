@@ -12,9 +12,6 @@ Merhabaaaa &#129321; Ben Hatice Nur Nalbant &#128587;&#x1F643;
 - Amatör Macro Fotoğrafçısı &#x1F4F7; <br>
 </p>
 
-<a href="https://www.linkedin.com/in/hatice-nur-n-916b7517a" target="blank">Linkedin</a> <br>
-<a href="https://www.instagram.com/birdeliprogramci" target="blank">Instagram</a> 
-
 <p align='center'>
  
   <a href="https://www.linkedin.com/in/hatice-nur-n-916b7517a/">
