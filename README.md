@@ -26,7 +26,7 @@ Merhabaaaa &#129321; Ben Hatice Nur Nalbant &#128587;&#x1F643;
  
 <p align='center'>
   <a href="#"><img src="https://visitor-badge.glitch.me/badge?page_id=hanuna42.hanuna42"></a>
-  </p>
+</p>
 
 <p>https://profile-summary-for-github.com/user/HaNuNa42</p>
 
