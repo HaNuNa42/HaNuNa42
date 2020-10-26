@@ -3,7 +3,7 @@ Merhabaaaa &#129321; Ben Hatice Nur Nalbant &#128587;&#x1F643;
 </h2>
 
 <p align='left'>
-- Sistem Yöneticisi ve Yönetim Bilişim Uzmanı. Konya, Türkiye &#x1F5A5; <br>
+- Yönetim Bilişim Uzmanı. Konya, Türkiye &#x1F5A5; <br>
 - Yazılıma Aşık: JAVA, DART, PYTHON &#x1F49C;&#x1F917; <br>
 - Teknoloji ve Bilgisayar Bilimlerine Meraklı &#x1F648;&#x1F4BB; <br>
 - GDG Kastamonu Yardımcı Organizatör &#x1F310; <br>
