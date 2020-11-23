@@ -6,7 +6,6 @@ Merhabaaaa &#129321; Ben Hatice Nur Nalbant &#128587;&#x1F643;
 - Yönetim Bilişim Uzmanı. Konya, Türkiye &#x1F5A5; <br>
 - Yazılıma Aşık: JAVA, DART, PYTHON &#x1F49C;&#x1F917; <br>
 - Teknoloji ve Bilgisayar Bilimlerine Meraklı &#x1F648;&#x1F4BB; <br>
-- GDG Kastamonu Yardımcı Organizatör &#x1F310; <br>
 - Machine Learning öğrencisi &#x1F3FE;&#x1F4DD; <br>
 - Flutter'la mobilli günler &#128540;&#128241; <br>
 - Çiçeksever &#x1F338;&#x1F339; <br>
