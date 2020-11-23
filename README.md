@@ -29,7 +29,7 @@ Merhabaaaa &#129321; Ben Hatice Nur Nalbant &#128587;&#x1F643;
 </p>
 
 <p>https://profile-summary-for-github.com/user/HaNuNa42</p>
-
+<p>https://haticenurnalbant.com </p>
 <!--
 ### Hi there 👋
 
