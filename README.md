@@ -6,7 +6,7 @@ Merhabaaaa &#129321; Ben Hatice Nur Nalbant &#128587;&#x1F643;
 - Yönetim Bilişim Uzmanı. Konya, Türkiye &#x1F5A5; <br>
 - Yazılıma Aşık: JAVA, DART &#x1F49C;&#x1F917; <br>
 - Teknoloji ve Bilgisayar Bilimlerine Meraklı &#x1F648;&#x1F4BB; <br>
-- Spring Boot ile wwww'li günler &#128540; <br>
+- Spring Boot ile www'li günler &#128540; <br>
 - Çiçeksever &#x1F338;&#x1F339; <br>
 - Amatör Macro Fotoğrafçısı &#x1F4F7; <br>
 </p>
