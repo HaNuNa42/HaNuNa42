@@ -1,5 +1,5 @@
 <h2 align='center'>
-Merhabaaaa &#129321; Ben Hatice Nur Nalbant &#128587;&#x1F643;
+Merhabaaaa &#129321; Ben Hatice Nur Nalbant Yavaş &#128587;&#x1F643;
 </h2>
 
 <p align='left'>
